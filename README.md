@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Fahd
+👋 Hi, I’m Fahd
